@@ -1,4 +1,4 @@
-
+ultimate mining tycoon hidden Script is the best ultimate mining tycoon Script, featuring instant win and no cooldown. Safe and powerful for all your
 
 
 
